@@ -1,5 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=true&profanity=false&bar_color=000000&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&redirect=true)
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=8&pause=1000&color=0000FF&center=true&vCenter=true&repeat=false&width=435&height=30&lines=New+york%2C+I+love+you%2C+but+you're+bringing+me+down." alt="Typing SVG" /></a>
+
 > ermmm hiii!! im too stupid and unoriginal for a rentry so have this rn.
 
 > my name is nikolaus ORRRRR august. yawn. you can also just give me a name i literally dont CAR
