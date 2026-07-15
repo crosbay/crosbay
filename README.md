@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Science+Gothic&size=17&letterSpacing=-1px&pause=1000&color=FF0000&vCenter=true&width=550&lines=BEWARE!!!!!!!!!!!!!!!!!!!!!!!!!;MY+ONLY+PERSONALITY+TRAIT+IS+PROJECT+HAIL+MARY!!!!!!!!!!!!!!!!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Science+Gothic&size=17&letterSpacing=-1px&pause=1000&color=FF0000&vCenter=true&width=550&lines=!!!+BEWARE+!!!;MY+ONLY+PERSONALITY+TRAIT+IS+PROJECT+HAIL+MARY;I+SHIP+GRACEROCKY;YES+THEY'RE+HAVING+SEX;I+DONT+CARE+ABOUT+BLOODYMARY;STRATT+STRAP+%23YES)](https://git.io/typing-svg)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=true&profanity=false&bar_color=000000&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&redirect=true)
 
