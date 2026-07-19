@@ -10,6 +10,8 @@
 
 >i have autism and avpd and something else that is undiagnosed and really scary so dont expect me to socialize like a normal person
 
+>i fluctuate between concerning oversharing and complete verbal shutdown and only god can predict which one i will be today
+
 >also i'm like smart or something i don't know why i feel the need to mention that my ass does not play about education
 
 >you are free to try and interact with me but i will either flight or freeze on your ass it's nothing personal i'm scared of air
