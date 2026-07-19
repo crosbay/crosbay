@@ -20,6 +20,8 @@
 
 >i'm currently unable to think or talk about anything besides rygos (especially phm), disco elysium and succession. i have a bunch of other interests and stuff i'm aware of but cross my heart and hope to die i cannot remember any of them. i guess hockey is cool but i couldn't care less about it at the moment
 
+>i am an insane ryland grace kin. you're better off not interacting if you're a grace kin/yume i can't control myself
+
 >i listen to music literally 24/7 i wish i was exaggerating so if you're trying to hit me up i'm most likely to answer if you mention music you like i'm on a crusade to listen to every song created ever
 
 >i cannot emphasize enough how scared i am constantly about everything it is genuinely excruciating and i am not medicated
