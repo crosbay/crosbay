@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=crosbay&color=0073ff&style=plastic&label=queers)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&redirect=true)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Science+Gothic&size=19&letterSpacing=-1px&pause=1000&color=47ACF7&vCenter=true&repeat=false&width=435&lines=ROCKY+MATE+BAD+AS+HELL%2C+STATEMENT.)](https://git.io/typing-svg)
@@ -10,9 +12,9 @@
 
 >i have autism and avpd and something else that is undiagnosed and really scary so dont expect me to socialize like a normal person
 
->i fluctuate between concerning oversharing and complete verbal shutdown and only god can predict which one i will be today
+>i fluctuate between concerning oversharing and complete verbal shutdown and only god can predict which one it will be today
 
->also i'm like smart or something i don't know why i feel the need to mention that my ass does not play about education
+>also i'm like smart or something i don't know why i feel the need to mention that but my ass does not play about education
 
 >you are free to try and interact with me but i will either flight or freeze on your ass it's nothing personal i'm scared of air
 
