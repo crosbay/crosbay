@@ -22,7 +22,7 @@
 
 >c+h is like okay and like i guess encouraged but you're not allowed to get mad at me when i immediately leave out of fear
 
->i'm currently unable to think or talk about anything besides rygos (especially phm), disco elysium and succession. i have a bunch of other interests and stuff i'm aware of but cross my heart and hope to die i cannot remember any of them. i guess hockey is cool but i couldn't care less about it at the moment
+>i'm currently unable to think or talk about anything besides rygos (especially phm), disco elysium and succession. i have a bunch of other interests and stuff i'm aware of but cross my heart and hope to die i cannot remember any of them. i guess hockey is cool but i couldn't care less about it at the moment (all of my interests are in listography i'm adding them gradually don't kill me)
 
 >i am an insane ryland grace kin. you're better off not interacting if you're a grace kin/yume i can't control myself
 
