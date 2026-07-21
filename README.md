@@ -10,6 +10,8 @@
 
 >transmasc agender and gayaroace and he/him pronouns ONLY you have to answer my 15 riddles to get the rest of them
 
+>i speak english, latvian, and russian (in that order) and am learning german and french kind of
+
 >i have autism and avpd and something else that is undiagnosed and really scary so dont expect me to socialize like a normal person
 
 >i fluctuate between concerning oversharing and complete verbal shutdown and only god can predict which one it will be today
